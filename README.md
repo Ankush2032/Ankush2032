@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @Ankush2032, a developer.
+- 👋 Hi, I’m @Ankush2032.
